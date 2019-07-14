@@ -1,1 +1,1 @@
-# hackz.com
+# hackz.xn
