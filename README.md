@@ -1,1 +1,1 @@
-# hackz.xn
+# hackz.io
